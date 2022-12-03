@@ -1,0 +1,1 @@
+# misskey.niri.la-tos
